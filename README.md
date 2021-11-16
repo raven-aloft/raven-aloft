@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @raven-aloft
-- 👀 I’m interested in running, dancing, and technology
+- 👀 I’m interested in the environment, running, dancing, and technology
 - 🌱 I’m currently learning project management
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
